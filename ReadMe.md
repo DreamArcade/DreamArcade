@@ -1,0 +1,1 @@
+Dream Arcade is a unique utility platform focusing on building web3 integrated games for its ever-expanding Pay to Win and Play to Earn (P2W/P2E) Eco-system while expanding its horizons by providing use-case to other communities and projects. $DA token is the heart and soul of Dream Arcade Project.
